@@ -1,1 +1,1 @@
-website link is https://emersonspence.github.io/resume/first.html
+For Job/Academic Purposes; This is not public.
