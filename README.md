@@ -1,1 +1,1 @@
-For Job/Academic Purposes; This is not public.
+For Job/Academic purposes; This is not public.
